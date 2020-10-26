@@ -1,1 +1,1 @@
-[GitHub](http://www.bilibili.com)
+[Bilibili](http://www.bilibili.com)
